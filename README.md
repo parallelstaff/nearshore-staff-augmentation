@@ -12,8 +12,12 @@ Why Choose ParallelStaff?
 
 ✅ Time Zone Alignment – Real-time collaboration with your existing teams.
 
+
 Get Started
+
 🚀 Learn more about how Nearshore Staff Augmentation can accelerate your development:
+
 🔗 Visit Our Website - https://parallelstaff.com
+
 
 For inquiries, contact us at hello@parallelstaff.com.
