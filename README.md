@@ -10,6 +10,6 @@ Why Choose ParallelStaff?
 
 Get Started
 🚀 Learn more about how Nearshore Staff Augmentation can accelerate your development:
-🔗 Visit Our Website
+🔗 Visit Our Website - https://parallelstaff.com
 
-For inquiries, contact us at info@parallelstaff.com.
+For inquiries, contact us at hello@parallelstaff.com.
